@@ -9,7 +9,7 @@
 
 **Email:** majitov567@gmail.com
 
-**Telegram:** @madjitov
+**Telegram:** [@madjitov](https://t.me/madjitov)
 
 [LinkedIn](www.linkedin.com/in/madjitov)
 
